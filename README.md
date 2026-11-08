@@ -1,2 +1,2 @@
 # phantom-polska
-oficjalna strona drużyny e-sportowej PHHANTOM POLSKA
+oficjalna strona drużyny e-sportowej PHANTOM POLSKA
